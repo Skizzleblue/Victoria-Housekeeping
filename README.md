@@ -1,8 +1,7 @@
 best veiwed on pc ! ^^
 
 ![x](https://static.wikia.nocookie.net/zenless-zone-zero/images/5/55/Mindscape_Von_Lycaon_Partial.png/revision/latest/scale-to-width-down/1000?cb=20240708152323)
-
- ...No, I'm not gonna pat your head. Please give me City. News. Can you understand me?
+## ...No, I'm not gonna pat your head. Please give me City. News. Can you understand me?
 
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
