@@ -6,7 +6,7 @@ best veiwed on pc ! ^^
 ╭・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ╰（‵□′）╯ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-   [strawpage !!](https://skizzleblue.straw.page) [Pronouns.cc !!](https://pronouns.cc/@skizzleblue)
+   [strawpage !!](https://bedbugz.straw.page) [Pronouns.cc !!](https://pronouns.cc/@skizzleblue)
                        
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄     (^o^)/     ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
